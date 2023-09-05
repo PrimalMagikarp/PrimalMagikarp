@@ -1,0 +1,4 @@
+- it me
+- game design student
+- he/they
+- prettier than you 
