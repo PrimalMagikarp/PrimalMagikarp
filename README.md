@@ -1,4 +1,4 @@
 - it me
 - game design student
-- he/they
-- prettier than you 
+- any pronouns 
+- amateur game designer and game writer 
